@@ -4,7 +4,7 @@
 **Direct experience of the absolute**
 * We are not body. We are not mind. We are absolute consciousness
 * What is universe?
-* 15 independent techniques to 
+* 15 independent techniques to realization of the absolute consciousness
 
 I am following the lecture series by Swami Sarvapriyananda. The series has 44 lectures. Following is the link to the lecture series
 <https://www.youtube.com/watch?v=3MRa2lR9MUg&list=PLDqahtm2vA710Q4PA2yKn8kqS0y-SZNo7&index=1>
@@ -31,9 +31,12 @@ If you have lot of good karma. You come to vedanta.
 
 
 ### Words
-#### Pratyaksha: Experience gained with senses. Seeing. Smelling. hearing
-#### Paroksha: Knowledge that we get from the range of sense organs.Inference; Draw hypothesis; Everything done in Sciece is Paroksha anubhuti. All of scientific knowledge is inference (observation). All of religion (is based not based on observation) is also paroksha based on belief (we read a book and believe that it is right). 
-#### Aparoksha: Vedanta is neither Pratyaksha nor Paroksha. It deals with our real nature. It is not pratyaksha, because we can't see it like seeing other objects. It is not Paroksha because you don't need to believe. Do you need to belive that you exist? This is **self illumined existence is called aparoksha** 
+#### Pratyaksha:
+Experience gained with senses. Seeing. Smelling. hearing
+#### Paroksha:
+Knowledge that we get from the range of sense organs.Inference; Draw hypothesis; Everything done in Sciece is Paroksha anubhuti. All of scientific knowledge is inference (observation). All of religion (is based not based on observation) is also paroksha based on belief (we read a book and believe that it is right). 
+#### Aparoksha: 
+Vedanta is neither Pratyaksha nor Paroksha. It deals with our real nature. It is not pratyaksha, because we can't see it like seeing other objects. It is not Paroksha because you don't need to believe. Do you need to belive that you exist? This is **self illumined existence is called aparoksha** 
 
 Meaning of aparoksha (as per Swamit Vidyaranya) 
 Akshanam indriyanam adhishtanam 
