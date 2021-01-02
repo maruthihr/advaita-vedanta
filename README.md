@@ -20,7 +20,28 @@ I am using the kindle version of this book
 Sriharim .....
 Oue happiness and unhappiness depens on **karma**. The karma that we have done in this life and past lives.
 If you have lot of good karma. You come to vedanta.
- 
+
+### Lecture 2
+**Start lecture with invocation of the first verse, which is salutations to Guru**
+#### Meaning of Verse 3 of the book
+Vedanta asks for 4-fold qualifications
+1. Viveka: discrimination between the real and un-real. (verse 6)<br>
+Seperate two things.
+Sand and sugar is mixed: Ants can seperate
+Milk and water is mixec: Swam can seperate
+Life alwasys presents mixes. This viveka to separate the eternal and non-eternal is what is needed. 
+2. Vairagya: Dispassion for wordly things. (Verse 5)<br>
+Treat food like medicine. Hunger is a discease and food is the medicine.
+3. 6-fold displines/tressure:  
+kshama: Letting all the desire go. in real sense it means **Quitening the mind**.
+dhama: Control of the acitivites of the sense and motor organs
+uparati: Withdrawal from worldly activities and withdrawing inwards.
+titiksha (spiritual fortitude) : ability to withstand. Troubles are going to come. Not letting them distract from spiritual practice
+Samadhana: 
+Shraddha: Faith. A faith that a student attending a class has
+4. Mumukshatvam: eagerness/yearning to get mukti
+
+The verse says one will get the 4-fold qualifications in the following way
 
 
 
@@ -28,6 +49,10 @@ If you have lot of good karma. You come to vedanta.
 **We are not bodies having spiritual experince. We are spiritual beings experiencing the body**<br>
 **Lord is present everywhere/in all the materials of the universe as cause (karanam)**
 **Every religion struggles to prove that god exists. On the other hand, do you need any proof for your existence?
+**Real problems are not outside. They are inside**
+
+
+
 
 
 ### Words
